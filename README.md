@@ -2,7 +2,7 @@
 - 👀 I’m interested in many things, hard to pinpoint something
 - But if I am to pick it would be astronomy, heritage, sustainability, teaching
 - 🌱 I’m currently learning new things
-- 💞️ I’m looking to collaborate on projecst with societal impact
+- 💞️ I’m looking to collaborate on projects with societal impact
 - 📫 How to reach me ... find me on LinkedIn, ResearchGate, or my professional website @ NTU UK
 
 <!---
